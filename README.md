@@ -14,7 +14,7 @@
 
 - 💬 Ask me about **Anything you need but not sure I know the Answer!😜**
 - 📫 How to reach me **bhavesh71.logu@gmail.com**
-- 📄 Know about my experiences [Nothing much! Just a Begginer.](Nothing much! Just a Begginer.)
+- 📄 Know about my experiences - **Nothing Much! Just a begginer.**
 - ⚡ Fun fact **I am a Human!**
 <p><img align="left" src="https://github-readme-stats.vercel.app/api/top-langs?username=Bhavesh71&show_icons=true&locale=en&layout=compact" alt="Bhavesh71"/></p>
 <p>&nbsp;<img align="center" src="https://github-readme-stats.vercel.app/api?username=Bhavesh71&show_icons=true&locale=en"alt="Bhavesh71"/></p>

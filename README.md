@@ -12,7 +12,6 @@
 
 - 👨 ‍💻 All of my projects are available at [https://github.com/Bhavesh71](https://github.com/Bhavesh71)
 
-- 💬 Ask me about **Anything you need but not sure I know the Answer!😜**
 - 📫 How to reach me **bhavesh71.logu@gmail.com**
 - 📄 Know about my experiences - **Nothing Much! Just a begginer.**
 - ⚡ Fun fact **I am a Human!**

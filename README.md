@@ -1,4 +1,4 @@
-![7](https://user-images.githubusercontent.com/77270386/205341570-3ef1c2d1-14df-4da9-b046-dc798f4342e4.png)
+![Copy of Modern Business Digital Marketing Agency LinkedIn Article Cover (1600 × 400 px) (2400 × 600 px)](https://user-images.githubusercontent.com/77270386/205562511-3977c28d-e16c-42bb-98fa-c79d5e742982.png)
 
 
 
